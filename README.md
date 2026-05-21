@@ -12,5 +12,19 @@
 <img width="26" height="16" alt="IMG_2457" src="https://github.com/user-attachments/assets/4a043743-ea4c-4070-949f-e09f2a3b7c89" />
 <img width="26" height="16" alt="IMG_2458" src="https://github.com/user-attachments/assets/afd1f1a0-5dcd-49a7-b88f-3aaac44f6c65" />
 <img width="26" height="16" alt="IMG_4492" src="https://github.com/user-attachments/assets/2fbe331a-2bcd-428d-b23b-7cc7d80f6f62" />
+    
+$\color{#00A827}{\text{Alex ou eddie(ゝ。∂)}}$
+$\color{#cfcfcf}{\text{Eddsworld fan since 2019 ! !}}$
+$\color{#00a827}{\text{Edd irl . Dbls dni or iwec .}}$
+$\color{#01771F}{\text{He/they . Taken <3}}$
+<div align="center">
+<img width="61" height="18" alt="IMG_4490" src="https://github.com/user-attachments/assets/8f4b180b-706a-4c5a-9376-77a4b43a8d44" />
+  <div align="center">
+<img width="99" height="56" alt="IMG_4487" src="https://github.com/user-attachments/assets/1eef58bb-eefa-4f39-b0c7-bbf7338138c7" />
+       <img width="457" height="37" alt="IMG_4257" src="https://github.com/user-attachments/assets/be10f5fb-b41b-4e9e-aeab-1e0185639827" />
+<p align="center">
+  <a href="https://github.com/spacebeetles">main</a>
+</p>
 
-wip
+
+
